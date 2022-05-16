@@ -14,11 +14,14 @@ We will councel you according to your doubts and we ensure you that if you liste
 
 ## About our councellor
 
+![image](pranzalevening for techevening.png)
+
 **Mr. Pranzal Trivedi**<br>
 - Lives in Jaipur
 - Loves gaming
-- currently studying for UPSC CSE
-- 
+- Currently studying for UPSC CSE
+-
+
 | BA Hons. Economics, Gyan Vihar University (2023) |
 | St. Anselm's Pink City Senior Secondary School (2018-2020)|
 | some school in gangapur city (2003-2018)|
