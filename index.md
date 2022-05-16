@@ -23,16 +23,21 @@ We will councel you according to your doubts and we ensure you that if you liste
 
 | BA Hons. Economics | Gyan Vihar University, Jaipur (2023) |
 | 12th | St. Anselm's Pink City Senior Secondary School, Jaipur (2018-2020) |
-| 10th | some school in gangapur city (2003-2018) |
+| 10th | St. Francis DE Sales Senior Secondary School, Gangapur City (2006-2018) |
 
 What is the credibility of our councellor? Your expirience!!<br>
 The sessions are free of cost, why not try it? Its for your betterment.
+
 ## Contact Us
 
 Feel free to contact us, our contact details are given below.
 
 - Email: pranzal00@gmail.com
+- Discord: Pranzal Trivedi #7590
+
+## Follow PranzalEvening!
+
 - Instagram: [@trivedipranzal](https://www.instagram.com/trivedipranzal/)
 - twitter: [@PranzalEvening](https://twitter.com/PranzalEvening?t=WLtaHA4-_re23_KLjTMQUQ&s=09)
 - twitch: [@pranzalevening](https://www.twitch.tv/pranzalevening)
-- Discord: Pranzal Trivedi #7590
+
