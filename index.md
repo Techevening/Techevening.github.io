@@ -13,7 +13,7 @@ We got you covered on all the following aspects:
 We will councel you according to your doubts and we ensure you that if you listen to us carefully, you yourself would posses the ability to councel people, your friends, family, etc.
 
 ## About our councellor
-<img src="pranzalevening for techevening.PNG" alt="image" width="200" height="240">
+<img src="pranzalevening for techevening.PNG" alt="image" width="200" height="240"><br>
 <!-- ![image](pranzalevening for techevening.PNG | width = 100)
 -->
 **Mr. Pranzal Trivedi**<br>
