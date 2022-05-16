@@ -13,9 +13,9 @@ We got you covered on all the following aspects:
 We will councel you according to your doubts and we ensure you that if you listen to us carefully, you yourself would posses the ability to councel people, your friends, family, etc.
 
 ## About our councellor
-
-![image](pranzalevening for techevening.PNG | width = 100)
-
+<img src="pranzalevening for techevening.PNG" alt="image" width="50" height="60">
+<!-- ![image](pranzalevening for techevening.PNG | width = 100)
+-->
 **Mr. Pranzal Trivedi**<br>
 - Lives in Jaipur
 - Loves gaming
