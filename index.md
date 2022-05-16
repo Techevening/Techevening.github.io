@@ -14,7 +14,7 @@ We will councel you according to your doubts and we ensure you that if you liste
 
 ## About our councellor
 
-![image](pranzalevening for techevening.png)
+![image](pranzalevening for techevening.PNG)
 
 **Mr. Pranzal Trivedi**<br>
 - Lives in Jaipur
