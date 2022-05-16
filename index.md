@@ -34,5 +34,5 @@ Feel free to contact us, our contact details are given below.
 - Email: pranzal00@gmail.com
 - Instagram: [@trivedipranzal](https://www.instagram.com/trivedipranzal/)
 - twitter: [@PranzalEvening](https://twitter.com/PranzalEvening?t=WLtaHA4-_re23_KLjTMQUQ&s=09)
-- twitch: [pranzalevening](twitch.tv/pranzalevening)
+- twitch: [@pranzalevening](https://www.twitch.tv/pranzalevening)
 - Discord: Pranzal Trivedi #7590
