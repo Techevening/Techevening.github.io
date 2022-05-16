@@ -2,7 +2,7 @@
 
 In this current age of fast paced digital technology we often find ourselves tempted to have our own piece of it, and in doing so we take uniformed decisions which limit our expireince of this technology. Ever bought a laptop and realised it became terribly slow after a year? or maybe 6 months? or even earlier? Such occurences make us regret our choices and lead to a bad investment. Not only laptops, there are many other such devices which we would buy and they would not meet our expectations and the requirements we bought them for.
 
-But fear not, we've got you covered. We at Techevening by PranzalEvening will provide proper and personal councelling about all the aspects of such devices to you **free of cost** so that you can take an informed decision and enjoy your very own piece of modern technology to the fullest!
+But fear not, we've got you covered. We at Techevening by PranzalEvening will provide proper personal councelling about all the aspects of such devices to you **free of cost** so that you can take an informed decision and enjoy your very own piece of modern technology to the fullest!
 
 We got you covered on all the following aspects:
 - Your budget
