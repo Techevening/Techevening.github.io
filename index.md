@@ -20,11 +20,12 @@ We will councel you according to your doubts and we ensure you that if you liste
 - Lives in Jaipur
 - Loves gaming
 - Currently studying for UPSC CSE
--
+
 
 | BA Hons. Economics, Gyan Vihar University (2023) |
-| St. Anselm's Pink City Senior Secondary School (2018-2020)|
-| some school in gangapur city (2003-2018)|
+| St. Anselm's Pink City Senior Secondary School (2018-2020) |
+| some school in gangapur city (2003-2018) |
+
 ## Contact Us
 
 Feel free to contact us, our contact details are given below.
