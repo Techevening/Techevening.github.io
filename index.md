@@ -21,11 +21,12 @@ We will councel you according to your doubts and we ensure you that if you liste
 - Loves gaming
 - Currently studying for UPSC CSE
 
+| BA Hons. Economics | Gyan Vihar University, Jaipur (2023) |
+| 12th | St. Anselm's Pink City Senior Secondary School, Jaipur (2018-2020) |
+| 10th | some school in gangapur city (2003-2018) |
 
-| BA Hons. Economics, Gyan Vihar University (2023) |
-| St. Anselm's Pink City Senior Secondary School (2018-2020) |
-| some school in gangapur city (2003-2018) |
-
+What is the credibility of our councellor? Your expirience!!<br>
+The sessions are free of cost, why not try it? Its for your betterment.
 ## Contact Us
 
 Feel free to contact us, our contact details are given below.
@@ -34,3 +35,4 @@ Feel free to contact us, our contact details are given below.
 - Instagram: [@trivedipranzal](https://www.instagram.com/trivedipranzal/)
 - twitter: [@PranzalEvening](https://twitter.com/PranzalEvening?t=WLtaHA4-_re23_KLjTMQUQ&s=09)
 - twitch: [pranzalevening](twitch.tv/pranzalevening)
+- Discord: Pranzal Trivedi #7590
